@@ -1,0 +1,1 @@
+# -kanazawaryoma817-.github.io
